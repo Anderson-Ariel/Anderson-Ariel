@@ -1,4 +1,4 @@
-## Hi, im SO 08  👉👌✨
+## Hi, im Anderson ⓿➑ 🤟⚡
 
 <!--
 **Anderson-Ariel/Anderson-Ariel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
